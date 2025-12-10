@@ -1,5 +1,5 @@
-# Power Rangers
+# POWER RANGERS
 
-Hey, this is the first update
+HEY THIS IS A
 
-edit luyfer
+EDIT LUYFER
