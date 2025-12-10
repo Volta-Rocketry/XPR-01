@@ -1,3 +1,5 @@
-# Tittle
+# POWER RANGERS
 
-Hey, this is the first update
+HEY THIS IS A
+
+EDIT LUYFER
