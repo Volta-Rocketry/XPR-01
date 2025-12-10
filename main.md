@@ -1,5 +1,7 @@
 # POWER RANGERS
 
-HEY THIS IS A
+Hey, this is the first update
 
-EDIT LUYFER
+Edit Fonseca :)
+
+DASKLDJALSJDJAKLSJD
