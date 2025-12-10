@@ -1,4 +1,4 @@
-# Tittle
+# POWER RANGERS
 
 Hey, this is the first update
 
